@@ -1,1 +1,1 @@
-# Incerc eu sa fac prima parte-Daniela
+# EGC_project
